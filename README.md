@@ -7,5 +7,5 @@ The idea was to get a drum sample at 92 bpm. Once I had that, I looked for a son
 * References:
 Sonne (Rammstein)
 I think I'm A Mother (PJ Harvey)
-92 bpm Drum Beats
+Rock Funk Syncopated - 92 BPM - DRUM TRACK (Drums Tracker)
 Stranded (Gorija)
